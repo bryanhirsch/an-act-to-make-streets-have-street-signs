@@ -1,4 +1,4 @@
-an act to make streets have street signs
+An Act to Make Streets Have Street Signs
 =========================================
 
-all streets shall have street signs
+All streets shall have street signs.
